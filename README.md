@@ -13,3 +13,8 @@ i play classicube mostly
 i make music in Beepbox or LMMS (mostly beepbox)
 
 i'm a lazy ass bitch
+
+C O N T A C T   M E   R I G H T   T H E   F U C K   N O W : 
+
+nekopico#4666
+@allonsortweets on Twitter (dm or @ me)
