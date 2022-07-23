@@ -8,4 +8,4 @@ A changed fangame i'm developing.
 
 (moderating) AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA by Desaxu/Nitrohine
 
-I used to own a server called Tanarchy, now i own a server called GHPCED.
+I used to own a server called Tanarchy, now i own a server called [GHPCED] Intensive Server Unit.
