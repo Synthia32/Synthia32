@@ -9,4 +9,4 @@ I play games and sometimes make games. Only sometimes.
 
 (moderating) AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA by Desaxu/Nitrohine
 
-I used to own a server called Tanarchy, now i own a server called [GHPCED] Intensive Server Unit.
+I used to own a server called Tanarchy, now i used to a server called [GHPCED] Intensive Server Unit, now i own a server called CakeWalk Classic.
