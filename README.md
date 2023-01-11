@@ -1,12 +1,12 @@
 # c291bGxlc3Nzb29vZXM
-Hello, i am c291bGxlc3Nzb29vZXM, or Skcycotic/Vobaloid.
+
+Hello, i am Synthia32, or c291bGxlc3Nzb29vZXM, or Vobaloid, or something. idk.
 I play games and sometimes make games. Only sometimes.
 # Games (not including Scratch projects)
-- A changed fangame i'm developing.
-- RBPCED - The ultimate GHPCED experience (INDEV)
+
+- ~~A changed fangame i'm developing.~~ Not anymore. Ew, Changed. Fuck that game.
+- ~~RBPCED - The ultimate GHPCED experience (INDEV)~~ Lost the files. Sorry.
+- Kaizowolf
 # ClassiCube servers i moderate or own.
-(moderating) BeachyWorlds by Desaxu/Nitrohine
 
-(moderating) AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA by Desaxu/Nitrohine
-
-I used to own a server called Tanarchy, now i used to a server called [GHPCED] Intensive Server Unit, now i own a server called CakeWalk Classic.
+I don't play ClassiCube anymore. 
