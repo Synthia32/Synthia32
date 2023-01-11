@@ -1,9 +1,9 @@
 # Synthia
 
 Hello, i am Synthia32, or c291bGxlc3Nzb29vZXM, or Vobaloid, or something. idk.
-I play games and sometimes make games. Only sometimes.
-I am transfem.
-I'm a minor. Do not send me weird shit.
+<p>I play games and sometimes make games. Only sometimes.</p>
+<p>I am transfem.</p>
+<p>I'm a minor. Do not send me weird shit.</p>
 
 # Games (not including Scratch projects)
 
